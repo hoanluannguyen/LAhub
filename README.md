@@ -9,3 +9,7 @@ tim vi tri đặt tiệm
 lập LLC
 Hỏi bank vụ vay tiền
 tìm bank nào rẻ
+
+làm menu sống động - photo shop, ai?
+tìm nguồn trà
+chon tên, làm website từ từ
